@@ -64,6 +64,16 @@ I have experience in planning for swimming with the coach of the multiple Paraly
 - Selected many years as a commentator of Pelota on TV
 - Interviewed as a referent for the book [Pelota in La Rioja](https://www.libreriadeportiva.com/libro/la-pelota-en-la-rioja_30943)
 
+## My background as sports manager
+
+Many titles and years of experience in sports management.
+
+I created teams, sports schools and clubs since I was 15.
+
+I worked in and with some Federations for many years organizing events, championships and creating clubs.
+
+I worked on objective selection and in coach criteria based systems.
+
 ## The person
 
 Experience working as a team with sports scientist and professionals
