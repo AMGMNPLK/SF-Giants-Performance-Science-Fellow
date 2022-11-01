@@ -33,8 +33,8 @@ The Giants Performance Science Fellow opportunity is designed to help aspiring c
 	- Spring training
 	- In-season Major League and Minor League team, player and staff needs
 	- Preparation for the Rule 4 Draft and Free Agency
-  [See: [[Top education in Sport Science\|Top education in Sport Science]], [[My trajectory as manager\|My trajectory as manager]], [[Teamwork with sports scientist and professionals\|Teamwork with sports scientist and professionals]]]
-- Opportunities to work with staff across baseball operations. [See: [[Teamwork with sports scientist and professionals\|Teamwork with sports scientist and professionals]], [[Leadership and effective communication\|Leadership and effective communication]], [[Integrity, leadership, commitment and trustworthy relationships\|Integrity, leadership, commitment and trustworthy relationships]]]
+  [See: [[Top education in Sport Science\|Top education in Sport Science]], [[My trajectory as manager\|My trajectory as manager]], [[Teamwork with sports scientists and professionals\|Teamwork with sports scientists and professionals]]]
+- Opportunities to work with staff across baseball operations. [See: [[Teamwork with sports scientists and professionals\|Teamwork with sports scientists and professionals]], [[Leadership and effective communication\|Leadership and effective communication]], [[Integrity, leadership, commitment and trustworthy relationships\|Integrity, leadership, commitment and trustworthy relationships]]]
 
 ### Skills and Qualifications:
 - Undergraduate degree or higher in a medical, performance science or related area of focus. Open to graduate students or medical residents interested in spending a year working in baseball. [See: [[Top education in Sport Science\|Top education in Sport Science]]]
@@ -47,7 +47,7 @@ The Giants Performance Science Fellow opportunity is designed to help aspiring c
 - Excellent communication skills both written and verbal required. [See: [[Leadership and effective communication\|Leadership and effective communication]] and [[My English level\|My English level]]]
 - Excellent work ethic with strong initiative and desire to take on tasks and projects. [See: [[Integrity, leadership, commitment and trustworthy relationships\|Integrity, leadership, commitment and trustworthy relationships]] and [[My trajectory as manager\|My trajectory as manager]]]
 - Maintain a high level of professionalism and personal conduct in your work and interactions with staff/players. [See: [[Integrity, leadership, commitment and trustworthy relationships\|Integrity, leadership, commitment and trustworthy relationships]]]
-- Contribute to team culture with a positive attitude. [See: [[Teamwork with sports scientist and professionals\|Teamwork with sports scientist and professionals]], [[Collaboration with Federations and Olympics Institutions\|Collaboration with Federations and Olympics Institutions]]]
+- Contribute to team culture with a positive attitude. [See: [[Teamwork with sports scientists and professionals\|Teamwork with sports scientists and professionals]], [[Collaboration with Federations and Olympics Institutions\|Collaboration with Federations and Olympics Institutions]]]
 - When necessary, have the ability to work non-traditional hours in non-traditional settings, including weeknights and weekends. [I'm a entrepreneur and passionate in sports science, these conditions are part of my life :)]
 - Bonus: Advanced Spanish speaking, conversational or writing skills. (Please distinguish if Native/Fluent speaker) [I am Spanish native speaker from Spain/Europe]
 
