@@ -59,7 +59,7 @@
 
 ### The person
 
-- [[Teamwork with sports scientist and professionals\|Teamwork with sports scientist and professionals]]
+- [[Teamwork with sports scientists and professionals\|Teamwork with sports scientists and professionals]]
 - [[Do you push limits and challenge the status quo❔\|Do you push limits and challenge the status quo❔]]
 - [[Integrity, leadership, commitment and trustworthy relationships\|Integrity, leadership, commitment and trustworthy relationships]]
 - [[Leadership and effective communication\|Leadership and effective communication]]
